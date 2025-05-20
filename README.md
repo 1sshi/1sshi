@@ -1,1 +1,1 @@
-![chaeya cats uwu.png](image-url)
+![chaeya cats uwu.jpg](image-url)
