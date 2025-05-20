@@ -4,7 +4,7 @@
 <br>
  ★✮⋆˙any is fine, prefer she-itᐟᐟ°
 <br>
-⊹♡ kaeya and chaeya has become my whole personality AND I'm a HUGE ragbros enjoyer I LOVE EM SM!! diluc h8r since day 1 /hj + also i cook/bake sometimes
+⊹♡ kaeya and chaeya has become my whole personality AND I'm a HUGE ragbros enjoyer I LOVE EM SM!! diluc h8r since day 1 /hj + also i cook/bake sometimes. I 💙 COLORS IF YOU HADNT NOTICED YET
 <br> <br>
       INT!! CHAEYA ENJOYERS OFC - non-problematic rareshippers(esp chiluc ilyall★) - Kaeya enjoyers - artists :333
 <br> <br> 
