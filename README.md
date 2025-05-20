@@ -1,4 +1,4 @@
-![chaeya uwu cats.jpg](https://github.com/1sshi/1sshi/blob/main/chaeya%20uwu%20cats.jpg)
+![handmadechaeyabanner.jpeg](https://github.com/1sshi/1sshi/blob/main/handmadechaeyabanner.jpeg)
 <br> <br>
 ｡⋆｡°✩ ref as isshi ☆⋆𖦹⋆°
 <br>
@@ -13,3 +13,5 @@
 ⇣⇣ !!!! QUICK DNI LIST !!!! ⇣⇣
 <br>
 minors that are 14 and under - anti-rare shippers - k43luc shippers/supporters - pr0sh1ppers - basic dni criteria, again - "rage bait is okay" kinda ppl - ANY problematic celebrity supporters
+<br> <br>
+![chaeya uwu cats.jpg](https://github.com/1sshi/1sshi/blob/main/chaeya%20uwu%20cats.jpg)
