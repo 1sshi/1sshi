@@ -4,11 +4,11 @@
 <br>
  ★✮⋆˙any is fine, prefer she-itᐟᐟ°
 <br>
-⊹♡ kaeya and chaeya has become my whole personality AND I'm a HUGE ragbros enjoyer I LOVE EM SM!! diluc h8r since day 1 /hj + also i cook/bake sometimes. I 💙 COLORS IF YOU HADNT NOTICED YET
+⊹♡ kaeya and chaeya has become my whole personality AND I'm a HUGE ragbros enjoyer I LOVE EM SM!! diluc h8r since day 1 /hj + also i draw, a lot. i like cooking/baking sometimes and i recently started writing fanfics for fun! I 💙 COLORS IF YOU HADNT NOTICED YET
 <br> <br>
-      INT!! CHAEYA ENJOYERS OFC - non-problematic rareshippers(esp chiluc ilyall★) - Kaeya enjoyers - artists :333
+      INT!! CHAEYA ENJOYERS PLS - non-problematic rareshippers(esp chiluc ilyall★) - Kaeya enjoyers - fellow artists :333
 <br> <br> 
-      FYI!! I can either be kinda dry or get too freaky when I get comfortable + I can be rly awkward and over-explaining most of the time, and draw back from talking bc I get shy easily, so I'm sorry if I talk to you once and don't again after ˙◠˙  also I don't rly go up to anyone, esp if kaeya, tartaglia or diluc ponies, in fear of making anyone uncomfortable NOT RLY A REASON BUT I JUST GET ANXIOUS RLY BAD so i js wanna add i wont try to yk "ship our ponies", as kae and tart, unless you do first or ik youre ok w it! i dont wanna "push it onto" anyone if that explains it? im okay with most ships so i dont mind as long as its LEGAL thats all ty for reading my silly yapping ♡
+      FYI!! I can either be kinda dry or get too freaky when I get comfortable + I can be rly awkward and over-explaining most of the time, and draw back or hold back from talking bc I get shy easily, so I'm sorry if I talk to you once and don't again after ˙◠˙  also I don't rly go up to anyone, esp if kaeya, tartaglia or diluc ponies, in fear of making anyone uncomfortable NOT RLY A REASON FOR THAT BUT I JUST GET ANXIOUS RLY BAD so i js wanna add, as either kae or tart, i wont try to yk "ship our ponies" or anything so dw, unless you do first or ik youre ok w it! i dont wanna seem like "pushing it onto" anyone if that explains it? im okay with most ships so i dont mind it as long as its LEGAL thats all ty for reading my silly yapping ♡
 <br> <br> 
 ⇣⇣ !!!! QUICK DNI LIST !!!! ⇣⇣
 <br>
