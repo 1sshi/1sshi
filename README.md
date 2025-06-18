@@ -12,8 +12,8 @@
 <br> <br> 
 ⇣⇣ !!!! QUICK DNI LIST !!!! ⇣⇣
 <br>
-minors that are 14 and under - anti-rare shippers - k43luc shippers/supporters - pr0sh1ppers - basic dni criteria, again - "rage bait is okay" kinda ppl - ANY problematic celebrity supporters
+minors that are 15 and under - anti-rare shippers - k43luc shippers/supporters - pr0sh1ppers - basic dni criteria, again - "rage bait is okay" kinda ppl - ANY problematic celebrity supporters
 <br> <br>
 ![chaeya uwu cats.jpg](https://github.com/1sshi/1sshi/blob/main/chaeya%20uwu%20cats.jpg)
 <br> <br>
-will add art credits once i can find my mind again bc i lost it while making this -I put the two collages together 
+will add art credits once i can find my mind again bc i lost it while making this -I put the two collages together,,,,also idk how to make a profile nobody notice that oki bye
