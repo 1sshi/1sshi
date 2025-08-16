@@ -1,3 +1,7 @@
+![KAEYA STAMP GIF OMG](https://github.com/user-attachments/assets/128c1f92-03fe-40c7-a761-bbf684027b3d)
+
+<br> <br>
+
 ![handmadechaeyabanner.jpeg](https://github.com/1sshi/1sshi/blob/main/handmadechaeyabanner.jpeg)
 <br> <br>
 ｡⋆｡°✩ ref as isshi ☆⋆𖦹⋆°
