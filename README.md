@@ -1,4 +1,4 @@
-![KAEYA STAMP GIF OMG](https://github.com/user-attachments/assets/128c1f92-03fe-40c7-a761-bbf684027b3d)
+![KAEYA STAMP GIF OMG](https://github.com/user-attachments/assets/128c1f92-03fe-40c7-a761-bbf684027b3d) <center>
 
 <br> <br>
 
