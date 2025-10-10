@@ -4,3 +4,5 @@ in the meantime check out my strawpage (which i might also redo if i ever find t
 <br>
 <br>
 blehh
+
+![Chaeyaisthebestshipingenshinidonottakecriticism_.jpg]
