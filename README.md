@@ -1,6 +1,4 @@
-i MIGHT redo this hang on bear w me!!! <center>
-<br>
-in the meantime check out my strawpage that i JUST renewed!!! <center>
+check out my strawpage that i JUST renewed!!! <center>
 <br>
 <br>
 blehh
