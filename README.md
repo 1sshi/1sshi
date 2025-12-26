@@ -1,4 +1,4 @@
-check out my strawpage that i JUST renewed instead!!!!
+check out my strawpage that i JUST renewed!!!!
 <br>
 <br>
 blehh
