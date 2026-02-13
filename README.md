@@ -4,9 +4,7 @@
 
 <br>
 
-<p align="center">
-  <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/d54ad3a5-4966-4933-96e7-d49ccd686a86" /> 
-</p>
+heh guess what........this still isnt done.. im taking a break..  <img width="50" height="50" alt="image" src="https://github.com/user-attachments/assets/d54ad3a5-4966-4933-96e7-d49ccd686a86" />
   
 <br>
 
