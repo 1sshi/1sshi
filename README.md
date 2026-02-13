@@ -12,11 +12,11 @@ my current gorgjouis chaeya avi
 
 <br>
 
-check out my strawpage that i JUST renewed!!!!
+![](https://64.media.tumblr.com/7a21a22e0210140e39d7d4a6f32faa5c/57912d78a7fe6b7f-a4/s75x75_c1/82eb9cbef57970b9655595f9880ef11b308977ab.gifv) check out [my strawpage](https://ilovechaeya.straw.page/) that i JUST renewed!!!!
 
 <br>
 
-blehh i love kaeya's manga panels a lot XPPPP  ![meow](https://64.media.tumblr.com/7b7def8f365632bd1fa568f8f873d4ce/cd3b30820ad107dd-27/s75x75_c1/6539002724c036edb3e47136f8d5df61b6691d21.gifv)
+blehh i love kaeya's manga panels a lot XPPPP  ![wine](https://64.media.tumblr.com/7b7def8f365632bd1fa568f8f873d4ce/cd3b30820ad107dd-27/s75x75_c1/6539002724c036edb3e47136f8d5df61b6691d21.gifv)
 
 
 <img width="1490" height="1060" alt="image" src="https://github.com/user-attachments/assets/209514fe-f193-42c5-bf8e-e2c3b68ec59c" />
