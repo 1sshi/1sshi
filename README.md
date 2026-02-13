@@ -29,6 +29,7 @@
 
   <img width="20" height="20" alt="gif" src="https://64.media.tumblr.com/7a21a22e0210140e39d7d4a6f32faa5c/57912d78a7fe6b7f-a4/s75x75_c1/82eb9cbef57970b9655595f9880ef11b308977ab.gifv"> check out [my strawpage](https://ilovechaeya.straw.page) that i JUST renewed!!!!
 
+
 <br>
 
 <p align="center">
