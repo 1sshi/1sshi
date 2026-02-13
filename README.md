@@ -1,4 +1,4 @@
-<img width="1490" height="1060" alt="temp one for githb" src="https://github.com/user-attachments/assets/61ac1923-973d-4164-aa54-e18fdd63b2fd" />
+<img width="1490" height="1060" alt="temporary thingy for github" src="https://github.com/user-attachments/assets/7ee579b9-2e3f-49ab-b551-ebd492e89635" />
 
 <br>
 
