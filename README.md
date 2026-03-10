@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="1490" height="1060" alt="temporary thingy for github" src="https://github.com/user-attachments/assets/7ee579b9-2e3f-49ab-b551-ebd492e89635" />
+<img width="1900" height="1440" alt="ajax looking at kaeya psd (3)" src="https://github.com/user-attachments/assets/3e2dfe24-8e59-43e3-aa10-394195bc6272" />
 
 <br>
 
